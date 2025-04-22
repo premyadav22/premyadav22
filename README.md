@@ -6,9 +6,7 @@
 
 💞️ I’m looking to collaborate on Open Source Projects and Web Apps
 
-📫 How to reach me: [your email] or connect on [LinkedIn link]
-
-😄 Pronouns: He/Him
+📫 How to reach me: [kumaryadavprem281@gmail.com] or connect on [linkedin.com/in/prem-kumar-yadav-96748b361]
 
 ⚡ Fun fact: I love solving coding problems and building cool projects in my free time!
 <!---
